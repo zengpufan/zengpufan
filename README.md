@@ -1,5 +1,3 @@
-## Hi there 👋
-# PuFan Zeng's Resume  
  📧 1600493127@qq.com | 📅 23 years old  
 
 
