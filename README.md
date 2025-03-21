@@ -35,7 +35,7 @@ Feb 2024 - May 2024
 
 ## Achievements  
 - **Awards**: CCPC/ICPC Regional Bronze Medal (2023), National Scholarship (2022, 2023)  
-- **English Proficiency**: CET-6 (620/710), fluent in technical paper reading  
+- **English Proficiency**: CET-6 (520/710), fluent in technical paper reading  
 
 
 ## Strengths  
